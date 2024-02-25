@@ -6,5 +6,5 @@
 
 [Secured and monitored web infrastructure](https://imgur.com/qfHLMLT)
 
-[Scale Up](https://imgur.com/GVIKqVz)
+[Scale Up](https://imgur.com/OOHBvuo)
 
